@@ -1,3 +1,3 @@
-sussy balls
+balls
 
 my friends are amazing
